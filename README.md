@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @HeronWit
 - 👀 I’m interested in RPGs, botanics and (now) cooding
-- 🌱 I’m soon taking SC50 classes!
+- 🌱 I’m soon taking the SC50 classes!
 - 💞️ I’m looking to improve with any help
 - 📫 How to reach me ... somewhere here, I guess
 
